@@ -3,7 +3,7 @@
 - 
 - 🌱 I’m currently learning ...Web Development 
 - 
-- 📫 How to reach me: [Instagram- https://www.instagram.com/_avi.shas_/](https://www.instagram.com/_avi.shas_/)
+- 📫 How to reach me: [Instagram-@_avi.shas_](https://www.instagram.com/_avi.shas_/)
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I spend 40% of my day listening Music.
 
